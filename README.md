@@ -1,2 +1,2 @@
 Nothing is Everything. </br>
-Learning with Earning
+Learning with Earning.
